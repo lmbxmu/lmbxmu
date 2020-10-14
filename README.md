@@ -1,4 +1,4 @@
-### Hi there 👋 ![]( https://visitor-badge.glitch.me/badge?page_id=lmbxmu)
+### Hi there 👋 ![]( https://visitor-badge.glitch.me/badge?page_id=lmbxmu.homepage)
 
 
 
