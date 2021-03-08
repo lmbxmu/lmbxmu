@@ -4,4 +4,4 @@
 
 - 🔭 I’m currently a third-year Ph.D in Xiamen University, China.
 
-- 📫 How to reach me: lmbxmu@stu.xmu.edu.cn for email or linmb007 for wechat.
+- 📫 How to reach me: lmbxmu@stu.xmu.edu.cn for email.
