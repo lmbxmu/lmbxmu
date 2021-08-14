@@ -2,6 +2,6 @@
 
 
 
-- 🔭 I’m currently a third-year Ph.D in Xiamen University, China.
+- 🔭 I’m currently a final-year Ph.D in Xiamen University, China.
 
 - 📫 How to reach me: lmbxmu@stu.xmu.edu.cn for email.
