@@ -4,4 +4,4 @@
 
 - 🔭 I’m currently a final-year Ph.D in Xiamen University, China, and will be a researcher at Youtu Lab, Tencent.
 
-- 📫 How to reach me: lmbxmu@stu.xmu.edu.cn for email.
+- 📫 How to reach me: linmb001@outlook.com for email.
